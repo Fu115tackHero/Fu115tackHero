@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software Engineering
 - 🌱 I’m currently learning Computer Science in University of North Sumatera
 - 📫 How to reach me (pratamacristoval@gmail.com)
-- 😄 Pronouns: Toval
+- 😄 Pronouns: Toval/Cris/Val/Cristo/Siahaan
 - ⚡ Fun fact: I hate Myself
 
 <!---
