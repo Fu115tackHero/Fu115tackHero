@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fu115tackHero
 - 👀 I’m interested in Software Engineering
-- 🌱 I’m currently learning Computer Science in North Sumatera University
+- 🌱 I’m currently learning Computer Science in University of North Sumatera
 - 📫 How to reach me (pratamacristoval@gmail.com)
 - 😄 Pronouns: Toval
 - ⚡ Fun fact: I hate Myself
