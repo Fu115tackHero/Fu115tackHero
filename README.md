@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Computer Science in University of North Sumatera
 - 📫 How to reach me (pratamacristoval@gmail.com)
 - 😄 Pronouns: he/him
-- 😊 Nickname : Toval/Cris/Cristo
+- 😊 Nickname : Toval/Cris/Cristo/Cristoval
 - ⚡ Fun fact: I hate Myself
 
 <!---
